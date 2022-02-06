@@ -12,5 +12,7 @@
 
 - Buscando me tornar um Full stack designer :paintbrush:
 
+Contato: https://www.linkedin.com/in/jo%C3%A3o-vitor-fonseca-lins-079769208/ 
+
   
 
